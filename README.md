@@ -1,1 +1,0 @@
-https://github.com/sleepdeprvthn/posmotri-v-okno-ad-main
